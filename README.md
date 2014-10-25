@@ -19,6 +19,8 @@ I beleive in simplicity.
 
 I beleive in making stupid things for fun.
 
+I beleive that everyone has a place in life and we can live in harmony.
+
 I don't beleive in oblivion after death.
 
 I don't beleive in the destruction of information.
